@@ -1,0 +1,2 @@
+# CatJam
+Privacy policy
